@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-This privacy policy applies to the Tankfinity app (hereby referred to as "Application") for mobile devices that was created by nitzan.games LLC (hereby referred to as "Service Provider") as a Free service. This service is intended for use "AS IS".
+This privacy policy applies to the Solitaire Sensation app (hereby referred to as "Application") for mobile devices that was created by nitzan.games LLC (hereby referred to as "Service Provider") as a Free service. This service is intended for use "AS IS".
 
 **Information Collection and Use**
 
